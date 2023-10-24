@@ -8,3 +8,5 @@ Utiizo esse espaço para minha organização e compartilhamento dos meu projetos
 ### Você pode entrar em contato comigo usando
 
 joao.rozon@escola.pr.gov.br
+
+![](https://media.tenor.com/PcdL9X84rpcAAAAd/pica-pau-pica-pau-indio.gif)
