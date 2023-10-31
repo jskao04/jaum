@@ -10,4 +10,5 @@ Utiizo esse espaço para minha organização e compartilhamento dos meu projetos
 
 joao.rozon@escola.pr.gov.br
 
-![](https://media.tenor.com/PcdL9X84rpcAAAAd/pica-pau-pica-pau-indio.gif)
+
+https://media.tenor.com/Q0G2OCTlhYoAAAAd/pica-pau.gif
